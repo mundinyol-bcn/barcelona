@@ -11,3 +11,6 @@ Those who have been part of Mundiñol for over a year come from different indust
 If you meet a potential candidate at a Mundiñol event who has been an active member for over a year, you can be confident that hiring them will be a decision you won’t regret.
 
 We would be delighted to welcome you to one of our events. Please feel free to reach out if you would like further information.
+
+Contact: Atsushi Miyazaki
+WhatsApp: +34665165267
