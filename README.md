@@ -7,16 +7,25 @@ Since 2008 MUNDIÑOL has been strengthening ties between Spain and Asian countri
 We meet every week to practise Spanish, Catalan and other Asian and European languages.
 
 Monday, 20:45 - 22:50
+
  ・ The New Orleans (Pere d'Artés 10)
+ 
  ・ Metro：Virrei Amat (L5)
+ 
 
 Wednesday, 20:30 - 22:50
+
  ・ Viena Pelayo (Pelai 16)
+ 
  ・ Metro：Universitat (L1, L2)
+ 
 
 Friday, 21:00 - 23:30
+
  ・ Alex Bar Restaurant (Còrsega 170)
+ 
  ・ Metro：Hospital Clinic (L5)
+ 
 
 We mainly focus on Spanish, Catalan, Japanese, and Chinese, but we also explore many other European and Asian languages together.
 
@@ -41,9 +50,11 @@ If you meet a potential candidate at a Mundiñol event who has been an active me
 We would be delighted to welcome you to Mundiñol events. Please feel free to reach out if you would like further information.
 
 Atsushi Miyazaki
+
 https://magradacatalunya.com/english-spanish.html
 
 Contact
+
 https://magradacatalunya.com/bcn/contacto/
 
 ※※※※※※※
