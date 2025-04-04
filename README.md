@@ -4,7 +4,7 @@ We are a team of Asians and Spanish speakers of various nationalities, called Mu
 
 Since 2008 Mundiñol has been strengthening ties between Spain and Asian countries through Spanish, Catalan and Asian languages such as Japanese, Chinese, Korean and more.
 
-We meet every week to practise Spanish, Catalan and other Asian and European languages.
+We meet every week in Barcelona to practise Spanish, Catalan and other Asian and European languages.
 
 Monday, 20:45 - 22:50
 
